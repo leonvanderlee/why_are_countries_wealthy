@@ -1,1 +1,1 @@
-# project-week-6
+# Why are countries wealthy?
