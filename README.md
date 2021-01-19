@@ -1,1 +1,1 @@
-# Why are countries wealthy?
+# Why Are Countries Wealthy?
